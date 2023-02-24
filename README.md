@@ -1,0 +1,2 @@
+# qno1
+AssalmuAlaikum
